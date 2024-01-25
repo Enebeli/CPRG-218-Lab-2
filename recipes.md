@@ -113,3 +113,25 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Fried Eggs
+
+Ingredients:
+- 2 raw eggs
+- 1/2 cup of canola oil
+- 1 seed of tomato 
+- 3/4 seed of habanero pepper
+- 1/2 teaspoon maggi seasoning
+- 1/2 teaspoon salt
+- 1 onion
+
+Instructions:
+1. Put sauce pan on cooker and leave until hot.
+2. Add canola oil to pan.
+3. Slice onion and add to pan. Stir and leave until golden brown.
+4. slice habanero pepper and tomato. Add to pan and stir.
+5. Add maggi seasoning and salt. Add to pan and stir. cook on low heat for 3 minutes.
+6. Break raw eggs into plate and whisk.
+7. Pour whisked eggs into pan and stir.
+8. Leave to cook on medium heat for 3 minutes. Stir constantly.
+9. Put eggs in a plate and serve with anything of your choice. 
